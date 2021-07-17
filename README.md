@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mpaxton1, the tech guy at Petal (https://petalnow.com)
+- 👀 I’m interested in several things but relevant here would be Python and Java primarily
+- 🌱 I’m currently learning patience.....
+- 💞️ I’m looking to collaborate on - just let me know what you got
+- 📫 How to reach me here or my email - feel free, mpaxton@petalnow.com
